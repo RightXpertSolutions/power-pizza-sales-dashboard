@@ -205,4 +205,4 @@ README.md
 
 Frederick Dordaah Ngmensoro Kuuyine
 
-Toronto, Canada
+
